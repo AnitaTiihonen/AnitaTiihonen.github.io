@@ -1,1 +1,7 @@
 - [AnitaTiihonen.github.io](https://anitatiihonen.github.io/)
+- [https://medium.com/@AnitaTiihonen](https://medium.com/@AnitaTiihonen)
+- [https://www.quora.com/profile/Anita-Tiihonen](https://www.quora.com/profile/Anita-Tiihonen)
+- [https://www.reddit.com/user/EnvironmentNo6125/](https://www.reddit.com/user/EnvironmentNo6125/)
+- [https://www.youtube.com/channel/UCQpPuXzpPyQNKTrkCeB9qSg](https://www.youtube.com/channel/UCQpPuXzpPyQNKTrkCeB9qSg)
+- [https://x.com/AnitaTiihonen](https://x.com/AnitaTiihonen)
+- [https://www.pinterest.com/AnitaTiihonen9/](https://www.pinterest.com/AnitaTiihonen9/)
